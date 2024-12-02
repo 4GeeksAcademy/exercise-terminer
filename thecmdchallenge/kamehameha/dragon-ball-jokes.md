@@ -1,6 +1,9 @@
-Where do you put Vegeta after you kill him? In the Frieza. 
-
-What did Beerus say to Goku? Why don't you tell your son to "Gohan" home. 
+Where do you put Vegeta after you kill him? In the Frieza.
+A
+D
+B
+D
+C
 
 How many Super Saiyans does it take to change a light bulb? Just one, but it will take him five episodes.
 
